@@ -1,5 +1,5 @@
 ## Boas vindas ao meu perfil !! ![](https://pixels.crd.co/assets/images/gallery28/e8a7299d.gif?v=99d3974e)
-Sou a **Duda** ![](https://pixels.crd.co/assets/images/gallery08/91d166bb.gif?v=99d3974e) ⊹ ࣪ ˖
+Sou a **Maria Eduarda** (ou, **Duda**!) ![](https://pixels.crd.co/assets/images/gallery08/91d166bb.gif?v=99d3974e) ⊹ ࣪ ˖
 ![]()
 ㅤㅤׂ ㅤ ㅤˑㅤ  ㅤ۟ ㅤ₊
 
