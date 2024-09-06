@@ -1,8 +1,8 @@
 ## Boas vindas ao meu perfil !! ![](https://pixels.crd.co/assets/images/gallery28/e8a7299d.gif?v=99d3974e)
 Sou a **Maria Eduarda** (ou, **Duda**!) ![](https://pixels.crd.co/assets/images/gallery08/91d166bb.gif?v=99d3974e) ⊹ ࣪ ˖
 ![]()
-ㅤㅤׂ ㅤ ㅤˑㅤ  ㅤ۟ ㅤ₊
 
+ㅤㅤׂ ㅤ ㅤˑㅤ  ㅤ۟ ㅤ₊
 ![](https://pixels.crd.co/assets/images/gallery21/28c8d12f.gif?v=99d3974e) Estou estudando na Alura 
 
 ![](https://pixels.crd.co/assets/images/gallery21/28c8d12f.gif?v=99d3974e) Estou me desenvolvendo na linguagem JavaScript 
